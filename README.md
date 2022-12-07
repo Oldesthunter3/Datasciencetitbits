@@ -1,2 +1,2 @@
 Im starting a blog. 
-This page is linked to the blog - <https://mangatx.com/manga/past-life-returner/chapter-1/>
+This page is linked to the blog - <https://datasciencetitbits.blogspot.com/>
